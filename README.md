@@ -1,6 +1,6 @@
 <sub>(i have a lot of accs, this is the main one.)</sub>
-## Hi, i'm vkh700!
+## Hi, i'm vladk5c!
 
-### <sub>main</sub> Projects  
+### Main projects  
 
 Not working on anything on GitHub yet.
